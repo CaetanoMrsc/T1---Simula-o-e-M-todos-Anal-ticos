@@ -1,1 +1,1 @@
-# T1---Simula-o-e-M-todos-Anal-ticos
+Grupo: Caetano Marasca e Felipe Ferreira
